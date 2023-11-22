@@ -1,6 +1,6 @@
-🐣 Please follow me for new updates https://twitter.com/camenduru <br />
-🔥 Please join our discord server https://discord.gg/k5BwmmvJJU <br />
-🥳 Please join my patreon community https://patreon.com/camenduru <br />
+🐣 Please follow me for new updates https://twitter.com/mp3pintyo <br />
+🔥 Please join our discord server https://discord.gg/NBgUuVDURG <br />
+🥳 Please join my patreon community https://patreon.com/mp3pintyo <br />
 
 ## 🦒 Colab
 
